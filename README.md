@@ -1,2 +1,2 @@
 # southwesternug.org
-SOUTH WESTERN UGANDA FIELD
+SOUTH WESTERN UGANDA FIELD website
